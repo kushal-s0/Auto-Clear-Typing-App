@@ -1,0 +1,1 @@
+# Auto-Clear-Typing-App
